@@ -1,11 +1,11 @@
 # Tiramisu DELUXE
 
-Voor 6 personen
+Voor 6 à 8 personen
 
 ## Benodigdheden
 
-- 500g _Mascarpone Galbani_ (romige Italiaanse zachte kaas)
-- 5 dl sterke _Koffie_ (ev. expresso)
+- 500g _Mascarpone_ (romige Italiaanse zachte kaas)
+- 5 dl sterke _Koffie_
 - 4 _Eierdooiers_
 - 4 _Eiwitten_
 - 200g _Poedersuiker_
