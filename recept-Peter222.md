@@ -13,7 +13,7 @@ Voor 6 à 8 personen
 - 200g _Boudoirs_
 - 6 soeplepels _Cacaopoeder_
 
-## Bereiding a la carte voor de chef
+## Bereiding à la carte voor de chef
 
 Schik de helft van de koekjes op de bodem van een schotel.
 
